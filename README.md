@@ -1,0 +1,2 @@
+Tyluxe Interior Design Studio
+Tyluxe is a luxury-focused interior design studio dedicated to transforming spaces into timeless works of art. We specialize in creating elegant, functional, and personalized interiors that reflect sophistication and comfort. From modern minimalist homes to high-end commercial spaces, Tyluxe blends creativity, precision, and premium materials to deliver exceptional design 
